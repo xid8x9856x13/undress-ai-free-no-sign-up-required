@@ -6,8 +6,8 @@ Undress AI is a free AI-powered clothes remover tool that uses advanced algorith
 
 **Undress AI** is a cutting-edge artificial intelligence application designed to digitally remove clothing from images, producing highly realistic depictions. Users can upload any image and select the desired elements to undress, resulting in strikingly accurate alterations. The tool is user-friendly, promoting creativity in personalizing images for entertainment, artistry, or other unique applications. **Undress AI** prioritizes privacy and ease of use, making it an appealing choice for those looking to create impactful visuals quickly and effectively.
 
-🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
-🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
+🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
+🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
 
 ---
 
@@ -37,8 +37,8 @@ Undress AI is a free AI-powered clothes remover tool that uses advanced algorith
 
 - **Web**  
 
-🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
-🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
+🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
+🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
 
 ---
 
@@ -68,8 +68,8 @@ Undress AI is a free AI-powered clothes remover tool that uses advanced algorith
 
 ---
 
-🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
-🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
+🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
+🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
 
 
 ## FAQs of Undress AI
@@ -104,7 +104,7 @@ Once an image is processed, changes cannot be undone.
 ### Is it free to use Undress AI?  
 Yes, Undress AI offers free usage with certain limitations.  
 
-🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
-🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app)
+🟢Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
+🔴Undress ai now👉 [undress ai free & no sign up required](https://aihunter.app?utm_source=github)
 
 
